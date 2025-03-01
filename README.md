@@ -1,0 +1,2 @@
+# Initial_Portfolio-_MJDESU
+THIS PORTFOLIO STILL IN PROGRESS 
